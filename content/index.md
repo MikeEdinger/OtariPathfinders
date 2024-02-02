@@ -9,7 +9,7 @@ If you're on a desktop or with a sufficiently large screen, you can use the side
 
 [NPCs](https://otaripathfinders.pages.dev/Abomination-Vaults/NPCs/)
 
-[[The Party]]
+[The Party](https://otaripathfinders.pages.dev/Abomination-Vaults/Party/)
 
 You can review sessions in Session Recaps, review missions you've been given or taken on yourselves, check out what you've learned about various NPCs.  If there is information you'd like added to your own character pages, let me know.
 
