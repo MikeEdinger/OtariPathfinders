@@ -1,0 +1,1 @@
+Olli was living in the fishing camp.  She is a scalliwing but claims to be a cuatl. The party don't know any better and believe her.  She has become friends with [[Tangletop]] and [[Blue Finley]] and they all watch over the fishing camp and help raise [[The Puppies]] in [[the party]]'s absence.

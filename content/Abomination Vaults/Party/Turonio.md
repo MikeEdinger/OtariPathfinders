@@ -1,0 +1,5 @@
+Magus
+
+Background
+
+**Turonio is the youngest of 8 siblings.  His father was a farmer who used to own his own land.  Turonio learned to hunt around the far from his father, which is why he prefers the bow.  He learned magic from his mother, who was the best wizard in their town; but she stopped studying to take care of her growing family.  For the most part, Turonio had a happy childhood, but times got tough. The land they lived on couldn’t produce enough crops and as time went on, his family fell deeper into debt.  Turonio’s father eventually lost the land in an attempt to save it. He made a deal with an evil elf from Cheliax.  Turonio’s father left the family for fear of their safety.  It’s been Tuonio’s quest to learn as much magic and martial ability so he can find his father and bring him home to reclaim the farm.**
